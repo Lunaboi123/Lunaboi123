@@ -5,6 +5,5 @@
 - 📫 discord:Luna_boi#4648...
 
 <!---
-Lunaboi123/Lunaboi123 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
+i love my internet friends..(っ ́ω﻿`c)♡
 --->
